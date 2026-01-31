@@ -1,4 +1,4 @@
-# 👋 Hi, I'm <Ajay!>
+# 👋 Hi, I'm Ajay!
 
 🎓 Student | 💻 Beginner Developer | 🚀 Learning Every Day  
 
